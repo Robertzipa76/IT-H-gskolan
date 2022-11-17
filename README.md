@@ -1,1 +1,1 @@
-# IT-H-gskolan
+# IT-Hogskolan
